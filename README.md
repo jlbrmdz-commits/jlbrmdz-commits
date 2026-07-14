@@ -1,10 +1,4 @@
-# jlbrmdz-commits
-
-Cybersecurity portfolio and professional profile
-
-
-
-\# Jose L. Bermudez
+# Jose L. Bermudez
 
 
 
